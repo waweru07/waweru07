@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @waweru07
 - 👀 I’m interested in .deriv trading..
 - 🌱 I’m currently learning ..how to trade.
-- 💞️ I’m looking to collaborate on .accurate bots..
+- 💞️ I’m looking to collaborate onbest strategies and best bots..
 - 📫 How to reach me .+254718352143..
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
